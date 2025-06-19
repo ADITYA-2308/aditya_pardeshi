@@ -5,7 +5,7 @@
 
 📍 Pune, Maharashtra, India  
 📧 [adityapardeshi625@gmail.com](mailto:adityapardeshi625@gmail.com)  
-📞 8308418142  
+📞 +91 8308418142  
 🔗 [LinkedIn](https://www.linkedin.com/in/aditya-pardeshi-538228172)  
 
 ---
